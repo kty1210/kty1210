@@ -1,8 +1,8 @@
 ## Intro
 
-권태연 </br>
-1995.12.10 </br>
-kwonabraham@naver.com </br>
+![ezgif-7-6b3bf55c80](https://github.com/kty1210/SpringPaging/assets/154123644/455ffc35-0960-4369-9b13-11fe42057c84)
+
+
 
 </br>
 </br>
